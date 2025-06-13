@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @subhashismohanty
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning Master of Computer Application
+- 🌱 I’m recent complete Master of Computer Application
 - 💞️ I’m looking opportunity to enhance ny Skills and Dynamic projects
 - 📫 How to reach me ...
 
